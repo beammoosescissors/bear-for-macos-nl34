@@ -1,4 +1,4 @@
-
+Bear for macOS automatic Macro - voice notes and dark mode offers the most advanced Bear for macOS macro, with voice notes and dark mode. Ideal for professionals.
 
 
 
